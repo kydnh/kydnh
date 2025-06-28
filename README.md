@@ -1,7 +1,7 @@
 
 - luv . art music . cats . videogames & ptv
- reach me via discord @ptvtony
- ... total freak
+- reach me via discord @ptvtony
+- ... total freak
 
 <!---
 kydnh/kydnh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
