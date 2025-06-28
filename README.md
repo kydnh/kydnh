@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kydnh
 - 👀 I’m interested in ... art cats videogames & ptv
 - 🌱 I’m currently learning ... psychology 
-- 📫 How to reach me ... via discord
+- 📫 How to reach me ... via discord @ptvtony
 - 😄 Pronouns: ... any
 
 <!---
