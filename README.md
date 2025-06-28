@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @kydnh
-- 👀 I’m interested in ... art cats videogames & ptv
-- 🌱 I’m currently learning ... psychology 
-- 📫 How to reach me ... via discord @ptvtony
-- 😄 Pronouns: ... any
+
+- luv . art music . cats . videogames & ptv
+ reach me via discord @ptvtony
+ ... total freak
 
 <!---
 kydnh/kydnh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
