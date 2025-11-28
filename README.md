@@ -1,5 +1,5 @@
 
-- luv . art music . cats . videogames & post-hardcore/alternative music
+- luv . art . cats . videogames & post-hardcore/alternative music
 - reach me via discord @mychemicalromEnce (w/ an e)
 - ... total freak
 
